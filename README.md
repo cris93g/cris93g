@@ -6,7 +6,7 @@ Currently contracted as a Application Developer @ Teksystems, and working on per
 
 ~ I wish I did more open source work, and I'll try my best to get more into it in the near future.
 
-📧 Email if I can help out with anthing Christiandevwork@gmail.com
+📧 Email if I can help out with anything Christiandevwork@gmail.com
 
 🤵 Because "you have to have a " <a href="https://www.linkedin.com/in/cristiansgonzalez/">LinkedIn<a/>
   
